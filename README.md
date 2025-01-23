@@ -3,7 +3,11 @@
 
 ## 黑膠 
 - [日本唱片行就逛這10間！東京、大阪、京都等推薦人氣店家總盤點](https://hk.wamazing.com/media/article/a-1810/) 
+- 京都
+  - [Kyoto Record Map 2019 - stroly.com](https://stroly.com/viewer/1560418245?spot=53053) 
 - 日本大阪當地曾推出一份"OSAKA RECORD MAP"
+  - [Osaka Record Stores Map 2024](https://groovenutrecords.wordpress.com/osaka-record-stores-map-2024/) 
+- [大阪音樂迷必訪TOWER RECORDS梅田NU茶屋町店和黑膠唱片專門店TOWER VINYL梅田店](https://digjapan.travel/zh_tw/blog/id=12560)
 - [大阪的唱片店一覽](https://recoya.net/en/stores/area/japan/osaka/)
   - 108 家商店
   - 在大阪，主要地區分為北（大阪-梅田）和南（難波-心齋橋）。
